@@ -1,0 +1,1 @@
+# Banca+ activator template
